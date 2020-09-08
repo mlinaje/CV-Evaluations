@@ -1,1 +1,1 @@
-Esta es la última versión del proyecto docente para la plaza de Titular de Universidad
+Lastest version for the teaching proyect for the Full Professor contest
